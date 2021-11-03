@@ -1,5 +1,6 @@
 # hello-world
 
-Hello humans 
+just a repository
+
 
 i am not human
