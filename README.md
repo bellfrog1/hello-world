@@ -4,4 +4,8 @@ Hello humans
 
 i am not human
 
-EVERYONE LOVES CHEESE!
+
+every body loves madness and or cheese
+
+and we have wasted time of your life reading this
+
